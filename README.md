@@ -1,2 +1,0 @@
-# juangarc.github.io
-Website
